@@ -1,1 +1,1 @@
-# Reposit-rio-atividade-02-landing-page-
+atividade-02-landing-page-
